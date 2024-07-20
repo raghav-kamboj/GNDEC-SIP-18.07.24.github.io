@@ -8,7 +8,7 @@
 
 ## Session 1: Interaction with Dr. Harpal Singh Pannnu
 - **Time:** 9:00 AM - 11:00 AM
-- **Speaker:* Dr. Harpal Singh Pannu, Professor of Sikh Studies, Guru Gobind Singh Chair at Central University of Punjab.* 
+- **Speaker:** Dr. Harpal Singh Pannu, Professor of Sikh Studies, Guru Gobind Singh Chair at Central University of Punjab.* 
 - **Summary:**
   - Dr. Harpal Singh Pannu  imparted valuable knowledge and insights.
 
